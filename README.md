@@ -1,6 +1,6 @@
 # Nika_Miku
 
-**Возраст:** 23 Года
+## ![1](https://sun9-78.userapi.com/impf/c847018/v847018120/5bb31/iMgaS58iHoI.jpg?size=900x1125&quality=96&sign=f71e1767525f7a87a406b43a141d2a82&type=album)
 
 **О себе:** 
 - Любимый день недели : Воскресенье "Я родился в этот день недели"
